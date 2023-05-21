@@ -1,1 +1,1 @@
-To jest moje repozytorium, no i super 
+To jest moje repozytorium
